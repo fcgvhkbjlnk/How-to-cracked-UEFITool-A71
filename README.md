@@ -1,0 +1,1 @@
+# How-to-cracked-UEFITool-A71
